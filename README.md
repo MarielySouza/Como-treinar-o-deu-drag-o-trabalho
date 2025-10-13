@@ -1,1 +1,0 @@
-# Como-treinar-o-deu-drag-o-trabalho
